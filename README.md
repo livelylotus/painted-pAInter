@@ -2,21 +2,21 @@
  got ur heart in a head lock ![1000028834](https://github.com/user-attachments/assets/6734479a-fa87-4eca-a761-fe5d16b55c81)
 
 
-Hello!! HIHII!! im mei-lumiang u can call me Meilu or Wuxi!! . . ![1000028839](https://github.com/user-attachments/assets/b6f43022-0bc0-4b06-81f0-0475b7c69d17)
+ღ . HELLO!! HIHII!! im mei-lumiang u can call me Meilu or Wuxi!! . . ![1000028839](https://github.com/user-attachments/assets/b6f43022-0bc0-4b06-81f0-0475b7c69d17)
  more nicknames in my pronouns page!! 
 
 ![1000028841](https://github.com/user-attachments/assets/bb0cd509-9ddd-4326-91f5-ba27c0b5d0c2)
 
-im js ur local hyperfixationist kid, i love dinosaurs!! CURRENT HYPERFIXATION ARE BSD AND MXTX (will always be my comf) ![1000028832](https://github.com/user-attachments/assets/84750022-61f9-4d37-937f-cb2fbb140ef2)
+im js ur local hyperfixationist kid ┆ i love dinosaurs!! ︴CURRENT HYPERFIXATION ARE BSD AND MXTX ꒰ will always be my comf ꒱ ![1000028832](https://github.com/user-attachments/assets/84750022-61f9-4d37-937f-cb2fbb140ef2)
 
 and and im a MSI ENTHUSIAST ![1000028835](https://github.com/user-attachments/assets/366e04a2-15b9-4bec-a5bc-7f771672f7fe)
 
 ![1000028841](https://github.com/user-attachments/assets/c985b3d8-1e71-4cd8-b02c-9812b59b6849)
 
-PLS SIGN MY ATA . . ![1000028836](https://github.com/user-attachments/assets/79e38977-f305-479e-b28b-e19bedeb5e38)
+✧PLS SIGN MY ATA . . ![1000028836](https://github.com/user-attachments/assets/79e38977-f305-479e-b28b-e19bedeb5e38)
 
 ![1000028837](https://github.com/user-attachments/assets/ea66c12a-05ec-4be7-bb56-ea2d835e1835)
- . . read carrd for more info!! ths is js a brief explaination of me!!!
+ . . ꒰ read carrd for more info!! ths is js a brief explaination of me!!! ꒱
 
 ![1000028841](https://github.com/user-attachments/assets/0cc010ac-7309-47a8-bb83-abb7c714c733)
 
